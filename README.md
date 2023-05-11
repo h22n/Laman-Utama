@@ -8,5 +8,5 @@ Cybersecurity | TemuanCyber
 
 [Follow Tiktok](https://www.tiktok.com/@temuancyber) 
 
-```Jangan Minum Engkem !!! 
+```Jangan Minum Engkem```
 
