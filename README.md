@@ -1,9 +1,10 @@
 # TemuanCyber
 Hai Mamak ! 
-Aku masih belum UPDATE REPOSITORY lagik !
+Akuk masih belum UPDATE REPOSITORY lagik !
 
 # Orang Asli
 Cybersecurity | TemuanCyber
 
 
-
+[Terima Kasih]
+               [Salam Dari TemuanCyber]
