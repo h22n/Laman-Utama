@@ -6,5 +6,7 @@ Akuk masih belum UPDATE REPOSITORY lagik !
 Cybersecurity | TemuanCyber
 
 
-[Terima Kasih]
-               [Salam Dari TemuanCyber]
+[Follow Tiktok](https://www.tiktok.com/@temuancyber) 
+
+```Jangan Minum Engkem !!! 
+
