@@ -2,11 +2,21 @@
 Hai Mamak ! 
 Akuk masih belum UPDATE REPOSITORY lagik !
 
-# Orang Asli
+``` Orang Asli```
 Cybersecurity | TemuanCyber
 
 
-[Follow Tiktok](https://www.tiktok.com/@temuancyber) 
+[☛ Follow Tiktok ☚](https://www.tiktok.com/@temuancyber) 
 
-```Jangan Minum Engkem```
+![TemuanCyber](https://ibb.co/nRbfxZF)
+
+
+
+```python
+   [ Jangan Minum Engkem ]
+
+
+
+
+
 
